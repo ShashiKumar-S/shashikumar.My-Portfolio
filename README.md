@@ -12,7 +12,7 @@
 
 ###
 
-<img align="left" src="https://visitor-badge.laobi.icu/badge?page_id=SHIVUKUMARA.SHIVUKUMARA&left_color=brown"  />
+<img align="left" src="https://visitor-badge.laobi.icu/badge?page_id=SHASHIKUMARA.SHASHIKUMAR&left_color=brown"  />
 
 ###
 
